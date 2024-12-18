@@ -12,3 +12,6 @@ Button Fixes,
 ...........................
 Tudo isso pra próxima versão: Alpha 1.1 (Pyglide One Fixes)
 Obrigado por baixar e aproveite!
+Como o GITHUB não aceita arquivos maiores de 25MB vou disponibilizar o arquivo aqui !!!!
+
+https://mega.nz/file/7d8QyCyB#E9x83K_XOop5B6z5pmywEWU1iy9kCreCBYJEzhtYLiQ
